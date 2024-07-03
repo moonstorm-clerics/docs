@@ -11,7 +11,7 @@
 - [portfolio](https://www.csonmezergame.com/about)
 - [LinkedIn](https://www.linkedin.com/in/canberk-sonmezer-a2323a211/)
 
-## Lucas Wolf
+## Yuke Wolf
 
 - [portfolio](https://dgnomewolf.wixsite.com/yukewolf)
 
